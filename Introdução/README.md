@@ -1,1 +1,12 @@
 
+![1](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/cb7ec89b-9e8f-4bb9-9284-0ee9116448db)
+![2](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/c33e3c36-34ef-4daf-a10a-461ec5955923)
+![3](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/7013a8e3-2ea5-4b89-b364-c0cb36833412)
+![4](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/fc7cd93e-9f51-45dc-8190-a0855bfa1f64)
+![5](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/489647b6-8151-4781-a8b3-3b4e0c61d852)
+![6](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/20f8678d-858b-419c-9a28-19a377b00298)
+![7](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/3e3d6953-572f-4300-8c21-c1daed365bc3)
+![8](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/001c6911-9d53-495a-a967-431cc2fd0e5b)
+![9](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/ea622cb4-b7b5-4adb-9ad7-da024a76be31)
+![10](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/010130dc-f91a-44c6-9006-95b4f4eefaa5)
+![11](https://github.com/NairaAndrade99/EstruturaDados/assets/101153757/0875bf86-bfdc-4223-8dfc-e2c0c98b7008)
